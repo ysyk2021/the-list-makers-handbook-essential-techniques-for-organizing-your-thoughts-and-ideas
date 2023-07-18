@@ -10,5 +10,4 @@ Whether you are a busy professional looking to improve time management skills or
 
 Join us on a journey to explore the art of list-making and its essential techniques for organizing your thoughts and ideas. With this book as your guide, you can unlock the full potential of list-making and achieve greater organization, productivity, and fulfillment in your personal and professional endeavors.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
