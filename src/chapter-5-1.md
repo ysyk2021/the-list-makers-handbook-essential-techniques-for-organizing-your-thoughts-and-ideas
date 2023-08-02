@@ -1,4 +1,4 @@
-Chapter: Navigating Procrastination and Managing Distractions while List-Making
+Navigating Procrastination and Managing Distractions while List-Making
 ===============================================================================
 
 In this chapter, we will explore effective strategies for navigating procrastination and managing distractions while list-making. Procrastination and distractions can hinder productivity and derail our list-making efforts. By implementing the techniques outlined in this chapter, you can overcome procrastination and maintain focus on your tasks, leading to more efficient and successful list-making.

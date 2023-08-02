@@ -1,4 +1,4 @@
-Chapter: Creating a Plan for Consistent Practice of List-Making
+Creating a Plan for Consistent Practice of List-Making
 ===============================================================
 
 In this chapter, we will outline a comprehensive plan for developing consistent and effective list-making habits. Consistency is key when it comes to reaping the full benefits of list-making. By following the techniques and strategies outlined in this chapter, you can establish a routine that ensures your lists become a powerful tool for organizing your thoughts and ideas.
