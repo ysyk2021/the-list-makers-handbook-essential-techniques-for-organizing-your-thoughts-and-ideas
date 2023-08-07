@@ -29,3 +29,4 @@
   - [Analyzing and Interpreting Data on List-Making Outcomes and Impact](chapter-7-2.md)
   - [Continuously Improving List-Making Approaches and Mindsets](chapter-7-3.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)

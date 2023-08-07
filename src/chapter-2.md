@@ -3,11 +3,6 @@ Chapter 2: Defining List-Making
 
 List-making is a powerful tool for organizing your thoughts and ideas, increasing productivity, and achieving your goals. In this chapter, we will define list-making, identify the components of effective list-making strategies, recognize the connection between clarity and productivity, and create a framework for list-making.
 
-Defining List-Making
---------------------
-
-List-making is the process of creating a written or digital list of tasks, items, or ideas. Lists can be used to track progress towards goals, prioritize tasks, brainstorm ideas, or simply to remember things that need to be done. Effective list-making involves several key components, which we will explore in the following section.
-
 Identifying the Components of Effective List-Making Strategies
 --------------------------------------------------------------
 
