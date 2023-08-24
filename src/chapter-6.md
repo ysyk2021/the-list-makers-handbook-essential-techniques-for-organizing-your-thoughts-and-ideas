@@ -1,5 +1,3 @@
-Chapter 6: Applying List-Making Across Different Settings and Platforms
-=======================================================================
 
 List-making is a versatile tool that can be applied in various settings and platforms. In this chapter, we will explore how to apply list-making techniques for academic pursuits, career development, personal growth and development, and public service and government roles.
 

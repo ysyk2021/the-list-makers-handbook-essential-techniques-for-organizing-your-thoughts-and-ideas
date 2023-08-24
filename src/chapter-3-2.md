@@ -1,5 +1,3 @@
-Developing a System for Assessing List-Making Needs and Goals
-======================================================================
 
 In this chapter, we will explore the process of developing a system for assessing your list-making needs and goals. By understanding your unique requirements and objectives, you can tailor your list-making techniques to effectively organize your thoughts and ideas. This chapter will guide you through a step-by-step approach to evaluate and refine your list-making practices.
 

@@ -1,5 +1,3 @@
-Chapter 7: Measuring Success in List-Making
-===========================================
 
 Measuring success in list-making is a critical step in ensuring that you are using this tool effectively. In this chapter, we will explore different metrics and key performance indicators (KPIs) for list-making, how to analyze and interpret data on list-making outcomes and impact, and how to continuously improve your list-making approaches and mindsets.
 

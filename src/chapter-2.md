@@ -1,5 +1,3 @@
-Chapter 2: Defining List-Making
-===============================
 
 List-making is a powerful tool for organizing your thoughts and ideas, increasing productivity, and achieving your goals. In this chapter, we will define list-making, identify the components of effective list-making strategies, recognize the connection between clarity and productivity, and create a framework for list-making.
 

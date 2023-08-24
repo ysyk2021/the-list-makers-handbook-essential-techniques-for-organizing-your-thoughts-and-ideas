@@ -1,5 +1,3 @@
-Dealing with Overwhelm and Maintaining Balance in List-Making Efforts
-==============================================================================
 
 In this chapter, we will explore strategies for managing overwhelm and maintaining balance in our list-making efforts. While lists can be powerful tools for organizing thoughts and ideas, they can also become overwhelming if not approached with care. By implementing effective techniques and adopting a balanced approach, we can harness the benefits of list-making while minimizing stress and maximizing productivity.
 

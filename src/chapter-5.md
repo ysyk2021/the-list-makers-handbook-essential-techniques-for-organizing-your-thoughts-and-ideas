@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Obstacles and Challenges in List-Making
-=============================================================
 
 List-making can be an effective tool for organizing your thoughts and ideas, but it is not without its challenges. In this chapter, we will explore how to overcome obstacles and challenges in list-making.
 

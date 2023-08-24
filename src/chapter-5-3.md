@@ -1,5 +1,3 @@
-Managing Relationships and Boundaries in List-Making
-=============================================================
 
 In this chapter, we will explore the significance of managing relationships and setting boundaries in the context of list-making. Efficiently organizing our thoughts and ideas requires us to consider how our lists interact with our relationships, both personal and professional. By establishing healthy boundaries and managing these relationships effectively, we can enhance our list-making techniques and achieve optimal productivity.
 

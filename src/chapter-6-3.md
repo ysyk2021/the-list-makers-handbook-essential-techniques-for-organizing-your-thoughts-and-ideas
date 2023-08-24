@@ -1,5 +1,3 @@
-Using List-Making for Public Service and Government Roles
-==================================================================
 
 In the world of public service and government roles, effective organization and efficient management of tasks and responsibilities are crucial. List-making is a powerful technique that can greatly enhance productivity, streamline operations, and facilitate decision-making processes. In this chapter, we will explore how list-making can be utilized to optimize workflow and achieve success in public service and government roles.
 

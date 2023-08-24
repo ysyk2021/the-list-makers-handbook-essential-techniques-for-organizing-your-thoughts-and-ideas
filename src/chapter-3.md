@@ -1,5 +1,3 @@
-Chapter 3: Strategies for Building a List-Making Mindset
-========================================================
 
 Building a list-making mindset requires self-awareness, understanding of your personal list-making style, and a system for assessing your list-making needs and goals. In this chapter, we will explore strategies for building a strong list-making mindset.
 
